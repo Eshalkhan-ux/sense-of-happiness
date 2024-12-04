@@ -1,1 +1,1 @@
-# sense-of-happiness
+# science of happiness
